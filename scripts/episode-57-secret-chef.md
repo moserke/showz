@@ -43,6 +43,10 @@ Picks<a name="picks"></a>
 
 - http://www.amazon.com/Five-Dysfunctions-Team-Large-Print/dp/0470580461
 
+#### Kevin
+
+- http://www.hbo.com/the-newsroom/index.html
+
 
 CLOSE
 -----
